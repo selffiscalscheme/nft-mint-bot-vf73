@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft mint bot with AI-powered nft mint bot | trailing-stop + NFT-sniping. Featuring trailing-stop and NFT-sniping, it's the best choice for automated NFT trading.
 
 
 
